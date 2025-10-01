@@ -1,1 +1,2 @@
-# the-villainess-is-a-marionette
+# The Villainess Is a Marionette
+Découvrant qu’elle est en fait la méchante d’un roman, la belle princesse Cayena prend conscience qu’elle est la marionnette de son frère, le futur empereur. Condamnée à une fin atroce, Cayena est bien décidée à ne pas subir son sort et à inverser les rôles. Désormais, c’est elle qui pèsera sur le destin des dames de compagnie, de son père mourant, de son frère en manque d’affection ou du séduisant duc Raphael Kedrey. Parviendra-t-elle à faire de la cour son propre théâtre de marionnettes ?
